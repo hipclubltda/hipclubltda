@@ -1,16 +1,10 @@
-## Hi there 👋
-
-<!--
-**hipclubltda/hipclubltda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p><a href="http://hipclub.ltda/">HipClub</a> mang đến s&acirc;n chơi đổi thưởng uy t&iacute;n với h&agrave;ng loạt tr&ograve; chơi đa dạng. Trải nghiệm đồ họa sống động, hiệu ứng bắt mắt tạo cảm gi&aacute;c ch&acirc;n thực. Hệ thống r&uacute;t nạp nhanh ch&oacute;ng, hỗ trợ kh&aacute;ch h&agrave;ng 24/7. Địa chỉ: 544 Đ. Li&ecirc;n Phường, Phường Ph&uacute; Hữu, Thủ Đức, Hồ Ch&iacute; Minh 71212, Việt Nam SĐT: 0364782291 Website: <a href="http://hipclub.ltda/">http://hipclub.ltda/</a> Hashtag: #hipclub #ca_cuoc_hip_club #link_vao_hipclub #nhacaiuytin</p>
+<p><a href="https://www.facebook.com/hipclubltda/" target="_blank" rel="noopener">https://www.facebook.com/hipclubltda/</a><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----></p>
+<p><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><a href="https://www.youtube.com/@hipclubltda" target="_blank" rel="noopener">https://www.youtube.com/@hipclubltda</a><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----></p>
+<p><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><a href="https://www.reddit.com/user/hipclubltda/" target="_blank" rel="noopener" aria-invalid="true">https://www.reddit.com/user/hipclubltda/</a><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----></p>
+<p><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><a href="https://x.com/hipclubltda" target="_blank" rel="noopener" aria-invalid="true">https://x.com/hipclubltda</a><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----></p>
+<p><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><a href="https://www.linkedin.com/in/hipclubltda/" target="_blank" rel="noopener" aria-invalid="true">https://www.linkedin.com/in/hipclubltda/</a><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----></p>
+<p><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><a href="https://groups.google.com/g/hipclubltda" target="_blank" rel="noopener">https://groups.google.com/g/hipclubltda</a><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----></p>
+<p><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><a href="https://www.quora.com/profile/HipClub-1" target="_blank" rel="noopener">https://www.quora.com/profile/HipClub-1</a><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----></p>
+<p><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><a href="https://www.gta5-mods.com/users/hipclubltda" target="_blank" rel="noopener">https://www.gta5-mods.com/users/hipclubltda</a><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----></p>
+<p><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><a href="https://heylink.me/hipclubltda" target="_blank" rel="noopener" aria-invalid="true">https://heylink.me/hipclubltda</a></p>
